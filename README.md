@@ -6,3 +6,5 @@ And if you don't think that we can sing it faster then you're wrong
 But it'll help if you just sing along
 Bum, bum, buuum...
 When around fire don't dumb
+Stay back and safe from flames
+Or else you'll end up in pain 
